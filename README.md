@@ -1,6 +1,6 @@
 # ds202-Matthew-Ritland
 ode to an academic advisor
-**worst**
+**worst: **
 Got a sucky lab TA 
-**best**
+**best: **
 I've made some new friends
